@@ -26,5 +26,5 @@ Lernwillig, zielstrebig und motiviert 💪
 
 ### 📫 How to reach me:
 
-- LinkedIn: [linkedin.com/in/lamzef-achraf](www.linkedin.com/in/achraf-lamzef-56617232b) 
+- LinkedIn: [www.linkedin.com/in/achraf-lamzef-56617232b]
 - Email: lemzefach@gmail.com  /// achraf.lamzef.86@edu.uiz.ac.ma
